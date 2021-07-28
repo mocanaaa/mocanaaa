@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mocanaaa
+- 👀 I’m interested in recruiting IT candidates 
+- 💞️ I’m looking to collaborate on detecting IT candidates for the banking system
+- 📫 How to reach me - mocanaas@gmail.com
